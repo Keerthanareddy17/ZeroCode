@@ -87,6 +87,6 @@ Once the app is running:
 
 Feel free to reach out for collaboration, feedback, or just to say hi! 👋
 - 📧 Email: katasanikeerthanareddy@gmail.com
-- 💼 LinkedIn: linkedin.com/in/keerthana-reddy-katasani-b07238268
+- 💼 LinkedIn: [https://www.linkedin.com/in/keerthana-reddy-katasani-b07238268/]
 
 
